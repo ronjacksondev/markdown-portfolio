@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. growing grass
+1. mowing grass
+1. sewing grass
